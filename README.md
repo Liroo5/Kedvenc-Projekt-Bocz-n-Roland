@@ -1,2 +1,2 @@
-# Kedvenc-Projekt-Bocz-n-Roland
+# Kedvenc-Projekt-Boczán Roland
 Kedvenc foci csapatomról készítettem el a projektem, az FC Barcelónáról.
